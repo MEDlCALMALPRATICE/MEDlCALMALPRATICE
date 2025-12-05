@@ -2,7 +2,9 @@
 
  | 𝙔𝙤𝙪 𝙙𝙞𝙙 𝙚𝙭𝙖𝙘𝙩𝙡𝙮 𝙬𝙝𝙖𝙩 𝙮𝙤𝙪 𝙨𝙖𝙞𝙙 𝙮𝙤𝙪 𝙬𝙤𝙪𝙡𝙙𝙣'𝙩 . | 
   
- [StrawPage](https://starscreamr.straw.page/) - . . . [Atabook](https://sodakitzzz.atabook.org/) - . 
+${{\color{#dc4b71} [StrawPage](https://starscreamr.straw.page/) - . . . [Atabook](https://sodakitzzz.atabook.org/) - . 
+
+
 
   , I F O R G  G I VE YOU, IVA  N . .
 
