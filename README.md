@@ -19,7 +19,6 @@
 
 
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31usv2agjy2dc2ibjpln5faphf7y&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=5a3a69&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 << ` 𝙵𝚛𝚘𝚖 𝚖𝚢 𝚛𝚘𝚝𝚝𝚒𝚗𝚐 𝚋𝚘𝚍𝚢, 𝙵𝚕𝚘𝚠𝚎𝚛𝚜 𝚜𝚑𝚊𝚕𝚕 𝚐𝚛𝚘𝚠 . >>
 
