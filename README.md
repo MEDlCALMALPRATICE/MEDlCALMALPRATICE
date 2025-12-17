@@ -14,7 +14,7 @@
 ![](https://komarev.com/ghpvc/?username=HeavenPiercehim&+color=yellow&label=Iq)
 
 
-![image](https://i.pinimg.com/736x/be/6a/3b/be6a3beb79f47bf278b3cc4cb320020d.jpg) 
+![image](https://i.pinimg.com/1200x/69/ff/fa/69fffac3b2880298533d5b1ae93ac41c.jpg) 
 
 
 
