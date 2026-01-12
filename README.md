@@ -1,14 +1,12 @@
 <div align="center">
 
- | 𝙔𝙤𝙪 𝙙𝙞𝙙 𝙚𝙭𝙖𝙘𝙩𝙡𝙮 𝙬𝙝𝙖𝙩 𝙮𝙤𝙪 𝙨𝙖𝙞𝙙 𝙮𝙤𝙪 𝙬𝙤𝙪𝙡𝙙𝙣'𝙩 . |
 
- , DNIUID / UNLESS CLOSE FRIEND ALWAYS, IN A DEPRESSIVE EPISODE.
-
+Sign my atabook to be drawn gyuuu
   
-  [StrawPage](https://starscreamr.straw.page/) - . . . [Atabook](https://sodakitzzz.atabook.org/) - . 
+  [StrawPage](https://starscreamr.straw.page) - . . . [Atabook](https://sodakitzzz.atabook.org/) - . 
 
 
-, . LOOPING, LOOPING, LOOPING, LOOPING THE ROOMS!
+gauuahhh I love all my frieonddss!!!
 
 ![](https://komarev.com/ghpvc/?username=HeavenPiercehim&+color=yellow&label=Iq)
 
