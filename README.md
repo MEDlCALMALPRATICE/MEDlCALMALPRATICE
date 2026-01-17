@@ -11,7 +11,7 @@ gauuahhh I love all my frieonddss!!!
 ![](https://komarev.com/ghpvc/?username=HeavenPiercehim&+color=blue&label=Iq)
 
 
-![image](https://gi.yatta.moe/assets/UI/namecard/UI_NameCardPic_NodKrai1_P.png?vh=2024123000)
+![image](https://i.pinimg.com/736x/ee/d3/0c/eed30c7306a5a76ecb509c20b78b8c32.jpg)
 
 
 
