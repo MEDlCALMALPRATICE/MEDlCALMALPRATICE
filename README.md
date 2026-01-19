@@ -8,7 +8,7 @@ Sign my atabook to be drawn gyuuu
 
 gauuahhh I love all my frieonddss!!!
 
-![](https://komarev.com/ghpvc/?username=HeavenPiercehim&+color=blue&label=Iq)
+![](https://komarev.com/ghpvc/?username=HeavenPiercehim&+color=yellow&label=Iq)
 
 
 ![image](https://i.pinimg.com/736x/ee/d3/0c/eed30c7306a5a76ecb509c20b78b8c32.jpg)
