@@ -11,7 +11,7 @@ gauuahhh I love all my frieonddss!!!
 ![](https://komarev.com/ghpvc/?username=HeavenPiercehim&+color=yellow&label=Iq)
 
 
-![image](https://i.pinimg.com/1200x/1a/96/3a/1a963a8708d89497fe4eef5f4b9a8af6.jpg)
+![image](https://i.pinimg.com/1200x/2c/a6/cf/2ca6cf8c4e1d63846a6b1399b209fdcc.jpg)
 
 
 
