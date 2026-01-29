@@ -1,7 +1,5 @@
 <div align="center">
 
-
-Sign my atabook to be drawn gyuuu
   
   [StrawPage](https://Bachikins.straw.page) - . 
 
