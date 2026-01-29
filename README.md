@@ -1,7 +1,8 @@
 <div align="center">
 
+Whoaggh!!!!!
   
-  [StrawPage](https://Bachikins.straw.page) - . 
+. - [StrawPage](https://Bachikins.straw.page) - . 
 
 Yoooo lucky and neil get a lifeee holy moly imagine being so obsessed with someone you stalk them even after they block you and change their username loool
 
