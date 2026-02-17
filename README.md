@@ -1,6 +1,6 @@
 <div align="center">
 
-Whoaggh!!!!!
+Embrace the discomfort and have the courage to LIVE! 
   
 . - [StrawPage](https://Bachikins.straw.page) - . 
 
