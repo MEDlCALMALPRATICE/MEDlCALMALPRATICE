@@ -10,10 +10,10 @@ gauuahhh I love all my frieonddss!!!
 ![](https://komarev.com/ghpvc/?username=HeavenPiercehim&+color=yellow&label=Iq)
 
 
-![image](https://fpiccdn.com/30122s/w500/h0/mratio/ejpg/?fd9b2917dd908254a6e642d402224a82)
+![image](https://files.catbox.moe/yjys1m.png)
 
 
-
+Art above by my goat ako
 
 << ` I Love Love Love Love Love Love you ! . >>
 
