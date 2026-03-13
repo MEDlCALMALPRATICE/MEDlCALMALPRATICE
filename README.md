@@ -10,10 +10,10 @@ gauuahhh I love all my frieonddss!!!
 ![](https://komarev.com/ghpvc/?username=HeavenPiercehim&+color=yellow&label=Iq)
 
 
-![image](https://files.catbox.moe/yjys1m.png)
+![image](https://private-user-images.githubusercontent.com/192657611/562506377-a31d7a1c-9801-40c6-b7de-0c180b3b3542.gif?jwt=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJpc3MiOiJnaXRodWIuY29tIiwiYXVkIjoicmF3LmdpdGh1YnVzZXJjb250ZW50LmNvbSIsImtleSI6ImtleTUiLCJleHAiOjE3NzMzNjY1MDQsIm5iZiI6MTc3MzM2NjIwNCwicGF0aCI6Ii8xOTI2NTc2MTEvNTYyNTA2Mzc3LWEzMWQ3YTFjLTk4MDEtNDBjNi1iN2RlLTBjMTgwYjNiMzU0Mi5naWY_WC1BbXotQWxnb3JpdGhtPUFXUzQtSE1BQy1TSEEyNTYmWC1BbXotQ3JlZGVudGlhbD1BS0lBVkNPRFlMU0E1M1BRSzRaQSUyRjIwMjYwMzEzJTJGdXMtZWFzdC0xJTJGczMlMkZhd3M0X3JlcXVlc3QmWC1BbXotRGF0ZT0yMDI2MDMxM1QwMTQzMjRaJlgtQW16LUV4cGlyZXM9MzAwJlgtQW16LVNpZ25hdHVyZT0zNjU1NWEyZjZmOThjNGM2ZDA5NzFiNjQ1OTM1ZmJkNzcyN2YyZWNkZGZiYjI1ZDA4YzgxMzIxODFlYjdhZjAwJlgtQW16LVNpZ25lZEhlYWRlcnM9aG9zdCJ9.fumctN7UtBICjZc6MKwOgxpaNEP9PDCqlR9m6mGu0v8)
 
 
-Art above by my goat ako
+I stole the gif above from ako because it matches me better 
 
 << ` I Love Love Love Love Love Love you ! . >>
 
